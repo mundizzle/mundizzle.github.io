@@ -1,3 +1,1 @@
-
-
-phhhhhhhhewewwweghgh ppppphhhhhphphhhhhheeeweweqweqweqweghgghhg pphphhphphpgffeewwwewwwwwwuughghghghgghg!!!!!
+![phhhhhhhhewewwweghgh ppppphhhhhphphhhhhheeeweweqweqweqweghgghhg pphphhphphpgffeewwwewwwwwwuughghghghgghg!!!!!](mind-blown.gif)
