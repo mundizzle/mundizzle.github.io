@@ -1,1 +1,1 @@
-![phhhhhhhhewewwweghgh ppppphhhhhphphhhhhheeeweweqweqweqweghgghhg pphphhphphpgffeewwwewwwwwwuughghghghgghg!!!!!](mind-blown.gif)
+![phhhhhhhhewewwweghgh ppppphhhhhphphhhhhheeeweweqweqweqweghgghhg pphphhphphpgffeewwwewwwwwwuughghghghgghg!!!!!](https://raw.githubusercontent.com/mundizzle/mundizzle.github.io/master/mind-blown.gif)
